@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @PaperChip
+- 👀 I’m interested in random stuff and I just like hangin out
+- 🌱 I’m currently learning nothing but want to start
+- 💞️ I’m looking to collaborate on nothing
